@@ -1,4 +1,4 @@
-# MMT-Umjetničko klizanje
+# MMT
 
 
 
